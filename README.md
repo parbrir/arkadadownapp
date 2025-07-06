@@ -2,7 +2,7 @@
 
 Вы когда-нибудь мечтали играть в любимые слоты и настольные игры прямо со своего телефона, где бы вы ни находились — в транспорте, на отдыхе или лежа на диване? Если да, то пришло время скачать Arkada Casino на Android и испытать настоящий драйв азартной игры без ограничений.
 
-➡️ **[СКАЧАТЬ APK](https://github.com/parbrir/arkadacasinoandroid/blob/main/ArkadaCasino.apk "СКАЧАТЬ APK")**
+➡️ **[СКАЧАТЬ APK](https://github.com/parbrir/arkadadownapp/blob/main/ArkadaCasino.apk "СКАЧАТЬ APK")**
 
 ➡️ **[ПЕРЕЙТИ НА ОФИЦИАЛЬНЫЙ САЙТ](https://clck.ru/3Mmm7v "ПЕРЕЙТИ НА ОФИЦИАЛЬНЫЙ САЙТ")**
 
